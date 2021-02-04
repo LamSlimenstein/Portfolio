@@ -2,8 +2,4 @@
 
 may your rekt inequities be washed clean in the flowing waters of Lake Minnetonka
 
-**you** *are* now **arrived** 
-
-    @
-    
-****Lam's Portfolio****
+# Welcome home to Lam's holy portfolio
